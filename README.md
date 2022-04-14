@@ -5,6 +5,6 @@
 - 📫 How to reach me https://www.linkedin.com/in/miracle-goodhead-7a699b219/
 - fun fact: i love cooking, singing , traveling, meeting people and seeing that others are truly happy
 <!---
-UrDezineGuy/UrDezineGuy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I see myself as a great contributor in the right team of course....
 You can click the Preview link to take a look at your changes.
 --->
